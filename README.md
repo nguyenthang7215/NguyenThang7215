@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nguyen Tien Thang
-- 👀 I’m interested in: Learning
+- 👀 I’m interested in: Coding -_-
 - 🌱 I’m currently learning: Information Technology in PTIT
 - 📫 How to reach me: (fb) https://www.facebook.com/nguyenthang7215 
 - 😄 Pronouns: Man
